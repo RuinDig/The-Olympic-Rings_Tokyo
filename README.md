@@ -1,5 +1,7 @@
 # The-Olympic-Rings_Tokyo
-日本オリンピックミュージアム前に設置されたオリンピックのシンボルマーク The Olympic Rings monument, in front of Japan Olympic Museum
+日本オリンピックミュージアム前に設置されたオリンピックのシンボルマーク
+
+The Olympic Rings monument, in front of Japan Olympic Museum
 
 2020年9月12日 2020.9.12 September 12th, 2020
 
