@@ -16,3 +16,7 @@ The Olympic Rings monument, in front of Japan Olympic Museum.
 2021年12月11日 2021.12.11 December 11th, 2021
 
 ![The-Olympic-Rings_Tokyo_05](https://user-images.githubusercontent.com/20723919/147822477-bc2107dc-80ef-417f-9293-80b36ca2aaf1.JPG)
+
+![The-Olympic-Rings_Tokyo_06](https://user-images.githubusercontent.com/20723919/147871283-be9fc70b-1572-4ff3-9e05-26dc82ef4659.jpg)
+
+![The-Olympic-Rings_Tokyo_06](https://user-images.githubusercontent.com/20723919/147871297-5b1999c5-a1b8-4d04-8ca5-a12db18cc722.jpg)
