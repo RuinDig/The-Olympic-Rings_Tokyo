@@ -20,3 +20,11 @@ The Olympic Rings monument, in front of Japan Olympic Museum.
 ![The-Olympic-Rings_Tokyo_06](https://user-images.githubusercontent.com/20723919/147871283-be9fc70b-1572-4ff3-9e05-26dc82ef4659.jpg)
 
 ![The-Olympic-Rings_Tokyo_07](https://user-images.githubusercontent.com/20723919/147871297-5b1999c5-a1b8-4d04-8ca5-a12db18cc722.jpg)
+
+![The-Olympic-Rings_Tokyo_08](https://user-images.githubusercontent.com/20723919/169937368-adcc104a-11c8-448d-9176-c05efebe25a5.JPG)
+
+![The-Olympic-Rings_Tokyo_09](https://user-images.githubusercontent.com/20723919/169937372-e0739d1c-57f9-41c5-8714-261b7bc1c1ba.JPG)
+
+![The-Olympic-Rings_Tokyo_10](https://user-images.githubusercontent.com/20723919/169937375-157caa15-5701-48b9-bbf6-7f0b756006c6.JPG)
+
+![The-Olympic-Rings_Tokyo_11](https://user-images.githubusercontent.com/20723919/169937378-27bd5ad1-f9f1-443e-a31f-f7445e0fcb21.JPG)
