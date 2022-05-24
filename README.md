@@ -21,7 +21,7 @@ The Olympic Rings monument, in front of Japan Olympic Museum.
 
 ![The-Olympic-Rings_Tokyo_07](https://user-images.githubusercontent.com/20723919/147871297-5b1999c5-a1b8-4d04-8ca5-a12db18cc722.jpg)
 
-2022年5月2日 2022.5.2 May 2nd, 2022
+2022年5月6日 2022.5.6 May 6th, 2022
 
 ![The-Olympic-Rings_Tokyo_08](https://user-images.githubusercontent.com/20723919/169937368-adcc104a-11c8-448d-9176-c05efebe25a5.JPG)
 
