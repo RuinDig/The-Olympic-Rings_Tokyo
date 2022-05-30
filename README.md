@@ -31,5 +31,10 @@ The Olympic Rings monument, in front of Japan Olympic Museum, Shinjuku city, Tok
 
 ![The-Olympic-Rings_Tokyo_11](https://user-images.githubusercontent.com/20723919/169937378-27bd5ad1-f9f1-443e-a31f-f7445e0fcb21.JPG)
 
-CC-BY-4.0 - RuinDig
-<div style="text-align: center;"><a href="https://creativecommons.org/licenses/by/4.0/deed.ja"><img src="https://user-images.githubusercontent.com/20723919/145936543-577c7705-90e2-4d56-ad5d-26b0fbcea02d.png" /></a></div>
+![The-Olympic-Rings_Tokyo_12](https://user-images.githubusercontent.com/20723919/170900151-3901268b-5880-4011-99ca-cca59e2a3dd3.JPG)
+
+![The-Olympic-Rings_Tokyo_13](https://user-images.githubusercontent.com/20723919/170900153-91cd0925-a97c-48fc-9113-896d246bf219.JPG)
+
+![The-Olympic-Rings_Tokyo_14](https://user-images.githubusercontent.com/20723919/170900154-c468f1a8-52c9-46d7-81f8-b2eb08ee22af.JPG)
+
+![The-Olympic-Rings_Tokyo_15](https://user-images.githubusercontent.com/20723919/170900155-572d7960-c5c3-469f-af86-ec1240bdec6e.JPG)
