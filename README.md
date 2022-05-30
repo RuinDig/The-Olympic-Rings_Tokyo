@@ -1,4 +1,7 @@
 # The-Olympic-Rings_Tokyo
+CC-BY-4.0 - RuinDig
+<div style="text-align: center;"><a href="https://creativecommons.org/licenses/by/4.0/deed.ja"><img src="https://user-images.githubusercontent.com/20723919/145936543-577c7705-90e2-4d56-ad5d-26b0fbcea02d.png" /></a></div>
+
 東京都新宿区にある日本オリンピックミュージアム前に設置されたオリンピックのシンボルマーク。
 
 The Olympic Rings monument, in front of Japan Olympic Museum, Shinjuku city, Tokyo.
